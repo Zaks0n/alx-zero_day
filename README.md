@@ -1,1 +1,2 @@
 Troubleshootings
+Manual niyi ooo
